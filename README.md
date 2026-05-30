@@ -1,5 +1,5 @@
 # github.io
-Official author website for Matthias M. Hoefler - nonfiction writing, German, and American Sign Language musings.
+Official author website for Matthias M. Hoefler - nonfiction writing, Christianity, German, and American Sign Language musings.
 # [Matthias M. Hoefler] | Writer
 
 Welcome to my corner of the web. I am a writer based in Ohio, USA, whose interests include piano teaching, the Deaf community, Christianity, nonfiction about those and other topics, German and American Sign Language.
