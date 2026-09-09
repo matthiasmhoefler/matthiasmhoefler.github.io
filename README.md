@@ -6,7 +6,7 @@ Welcome to my corner of the web. I am a writer based in Northeast Ohio, USA, who
 
 ## Publications and Current Projects
 * **Nature & Wildlife** My feature on penguins is in the Winter 2026 edition of Creation Illustrated. [Peculiar Penguins](https://www.creationillustrated.com/). I liked "God's Dressed-Up Divers" for the title; they preferred "Peculiar Penguins."
-* **Swimming in Untranslated Sign** Wayfarer published [a piece](https://www.wayfarermagazine.com/p/swimming-in-untranslated-sign?utm_source=publication-search) I did about my experience at a local Deaf night out. I felt like a penguin at a flying contest.
+* **Swimming in Untranslated Sign** Wayfarer published [a piece](https://wayfarermagazine.substack.com/p/swimming-in-untranslated-sign?utm_source=publication-search) I did about my experience at a local Deaf night out. I felt like a penguin at a flying contest.
 * **Susan Meddles with My Meds** [Cleveland Health and Wellness Center](https://www.chawc.org/) and [Literary Cleveland](https://www.litcleveland.org/) put together an [Interactive Mental Map](https://www.chawc.org/mental-map) full of mental health recovery stories. Go to the last link I put above and click on the location of Kent, Ohio to read a particularly bedeviling aspect of my experience with bipolar disorder.
 *  Working on a mental health surprise interview I don't want to talk about yet, in case it doesn't go through.
 *  **Bible Advocate** is doing a special run this year on Jesus. I submitted my latest effort for them at the end of July.
